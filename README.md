@@ -1,2 +1,0 @@
-# vgrose.github.io
-Bio
